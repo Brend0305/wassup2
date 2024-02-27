@@ -1,6 +1,2 @@
-# wassup2
-test
+## 안녕하세요. 변지민입니다🙌
 
-test
-
-PUSH 연습해보자

@@ -17,7 +17,7 @@
 <br/> 
 
 ### 🖼 개인 작업 🖼
-#### 
+#### [궁금하면 클릭! 👉👉](https://www.youtube.com/watch?v=0GdLfvLAuvQ)
 <br/> 
 
 ### 🏆 수상 🏆
